@@ -10,4 +10,4 @@ Two and a half years ago, I made a career transition from a publisher engagement
 - 💬 Ask me about **anything**, please!
 
 
-You can find me here:  [Linkedin](https://www.linkedin.com/in/myllinhtran/) **.** [GitHub](https://github.com/myllinhtran) **.** [Twitter](https://twitter.com/myllinhtran) **.** [Medium](https://medium.com/myllinhtran)
+You can find me here:  [Linkedin](https://www.linkedin.com/in/myllinhtran/) | [GitHub](https://github.com/myllinhtran) | [Twitter](https://twitter.com/myllinhtran) | [Medium](https://medium.com/myllinhtran)
